@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-HI! I am president William and I would like to present to you:
+This is the home of the:
 HOMEBUSH BOYS HIGH SCHOOL CODE COMMUNITY
